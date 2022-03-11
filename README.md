@@ -1,4 +1,4 @@
-Project URL: https://devansh.gaming/
+Project URL: https://sites.google.com/view/devanshgaming/home
 
 ![Screenshot (238)](https://user-images.githubusercontent.com/86014296/157889336-71fa42f7-b975-48f0-9c54-4635bea70e1d.png)
 ![Screenshot (236)](https://user-images.githubusercontent.com/86014296/157888487-d794966e-5ff5-4e75-b72d-083ad0302144.png)
